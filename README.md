@@ -1,4 +1,4 @@
-Antoine | Founding +3.000.000 user social app (Vibes-Widget) | 20 yo | French guy -> main GitHub account @Antoinegtir
+Antoine | Founding +3.000.000 user social app (Vibes-Widget) | 20 yo | French guy | main GitHub account -> @Antoinegtir
 
 For confidentiality purpose i prefer to fork the repo in this account
 
