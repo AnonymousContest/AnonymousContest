@@ -1,4 +1,4 @@
-## Hi there 👋
+Antoine | Founding +3.000.000 user social app (Vibes-Widget) | 20 yo | French guy -> main account @Antoinegtir
 
 <!--
 **AnonymousContest/AnonymousContest** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
